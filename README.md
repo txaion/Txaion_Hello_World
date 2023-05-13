@@ -2,10 +2,13 @@
 【TXAION | Explore Infinite Future】
 
 
+
 【Established on 2023/05/08】
 
 
+
 · Dedicated to pushing boundaries, pursuing constant growth, and aiming for an eternal future.
+
 
 
 【T】(To): Signifies going and exploring.
@@ -15,7 +18,11 @@
 【Aion】Derived from the Greek word for eternity.
 
 
+
+
 【Follow us on social media】
+
+
 
 【Web (Official Website)】https://txaion.com/
 
@@ -34,6 +41,8 @@
 【TikTok】https://www.tiktok.com/@txaion
 
 【GitHub】https://github.com/txaion
+
+
 
 
 【TXAION】Looking forward to meeting you.
